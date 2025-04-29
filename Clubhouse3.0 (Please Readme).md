@@ -1,6 +1,5 @@
 # Clubhouse3.0_Base-Batch
 Dear Base Batch Team (India),
-Thank you for your interest in our project Clubhouse 3.0.
 We sincerely apologize, but at this moment we are unable to publicly share our project repository due to internal policies and IP-related considerations.
 However, we would be more than happy to demonstrate the full project in person or via video conference. We’re fully committed to showcasing our work and sharing our vision with you directly.
 
