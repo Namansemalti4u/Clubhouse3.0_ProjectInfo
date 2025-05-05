@@ -5,8 +5,6 @@ However, we would be more than happy to demonstrate the full project in person o
 
 📩 Contact us: vedantp@neelafilm.com
 
-📄 Pitchdeck: [Click to View](https://www.papermark.com/view/cm8e74x2k000el403nhcccl6v)
-
 We also previously sent our concern to basebatches@devfolio.co, but haven’t received a response yet—so we’re sharing this message here as a follow-up to ensure it reaches you.
 
 
