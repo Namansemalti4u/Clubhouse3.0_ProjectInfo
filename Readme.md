@@ -11,7 +11,7 @@ We also previously sent our concern to basebatches@devfolio.co, but haven’t re
 
 
 👋 About Us,
-We represent India’s biggest family entertainment show, with a loyal audience of 60M+ viewers.
+We represent India’s biggest family entertainment show "Taarak Mehta Ka Ooltah Chashmah", with a loyal audience of 60M+ viewers.
 Building on our success, we’ve taken our IPs into the gaming world, where our titles have climbed to the top charts on both Android and iOS. Now, we’re excited to take the next leap—bringing our universe into the Web3 space through innovative, immersive gaming experiences.
 Thank you for your time and consideration. We look forward to connecting soon!
 
